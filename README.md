@@ -1,4 +1,4 @@
-# Ali  Mehdi Abro BLOG
+# Ali  Mehdi Abro
 [my_facebook_image](https://web.facebook.com/photo/?fbid=1021221762110318&set=a.102675170631653)
 Hello everyone, Welcome to my first blog.
 
